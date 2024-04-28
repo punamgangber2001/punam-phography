@@ -1,1 +1,1 @@
-# punam-phography
+# punam-photography
